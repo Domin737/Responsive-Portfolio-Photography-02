@@ -1,1 +1,0 @@
-# Responsive-Portfolio-Photography-02
